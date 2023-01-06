@@ -2,7 +2,7 @@
 # Hi, I'm Anshul Yadav! 👋
 
 
-![Mugiwara](https://tenor.com/view/luffy-wano-gif-25807820)
+![Mugiwara](https://github.com/predator094/predator094/blob/main/luffy-wano.gif)
 
 
 ## 🚀 About Me
