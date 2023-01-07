@@ -3,7 +3,7 @@
 
 
 ![]("https://media.tenor.com/Xkpq64XtDGYAAAAd/luffy-wano.gif")
-<img src="[https://tenor.com/view/luffy-wano-gif-25807820]" />
+
 
 
 ## 🚀 About Me
