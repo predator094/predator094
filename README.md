@@ -3,7 +3,7 @@
 
 
 ![]("")
-<img src="[https://github.com/predator094/predator094/blob/main/luffy-wano.gif]" />
+<img src="[https://tenor.com/view/luffy-wano-gif-25807820]" />
 <html><body>
 <div class="tenor-gif-embed" data-postid="25807820" data-share-method="host" data-aspect-ratio="1.77778" data-width="100%"><a href="https://tenor.com/view/luffy-wano-gif-25807820">Luffy Wano GIF</a>from <a href="https://tenor.com/search/luffy-gifs">Luffy GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
 </body>    </html>
