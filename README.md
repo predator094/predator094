@@ -2,7 +2,7 @@
 # Hi, I'm Anshul Yadav! 👋
 
 
-![]("[https://media.tenor.com/Xkpq64XtDGYAAAAd/luffy-wano.gif]")
+![]("https://media.tenor.com/Xkpq64XtDGYAAAAd/luffy-wano.gif")
 
 
 
