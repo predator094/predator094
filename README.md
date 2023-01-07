@@ -7,6 +7,7 @@
 
 ## 🚀 About Me
 A Python developer and Machine Learning enthusiast, yup i am a weeb and will surely love to have a weeb or geek talk with you , at end end of the page are links to my socials....
+
 👩‍💻 I'm currently working on...
 
 🧠 I'm currently learning Machine Learning.
