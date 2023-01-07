@@ -3,6 +3,7 @@
 
 
 ![](https://github.com/predator094/predator094/blob/main/luffy-wano.gif)
+<img src="https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif" width="40" height="40" />
 
 
 ## 🚀 About Me
