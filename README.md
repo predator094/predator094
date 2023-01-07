@@ -3,7 +3,7 @@
 
 
 ![]("")
-<img src="(https://github.com/predator094/predator094/blob/main/luffy-wano.gif)" width="40" height="40" />
+<img src="(https://github.com/predator094/predator094/blob/main/luffy-wano.gif)" />
 
 
 ## 🚀 About Me
